@@ -1,5 +1,5 @@
 kanaya
 hai!
 nanigasuki?
-sex yorimo pachiko
+tyokominto yorimo pachiko
 # ↑誰ですかこれ
